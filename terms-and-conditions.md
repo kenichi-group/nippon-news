@@ -1,4 +1,4 @@
-## TERMS OF USE
+## TERMS AND CONDITIONS
 These Terms of Use (“Terms”) apply to your use of **Nippon News’s app** for Mobile devices.
 Please read these Terms carefully; by using **Nippon News**, you agree to be bound by them.
 
