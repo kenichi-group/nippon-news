@@ -27,7 +27,7 @@ In the future, we may sell to, buy, merge with, or partner with other businesses
 In such transactions, user information may be among the transferred assets.
 
 ## Contacting Us
-If you have questions regarding this privacy policy, you may e-mail me at [pursue_better@126.com](mailto:pursue_better@126.com).
+If you have questions regarding this privacy policy, you may e-mail me at [yamada.kenichi.nippon@gmail.com](mailto:yamada.kenichi.nippon@gmail.com).
 
 ## Changes to this terms
 
