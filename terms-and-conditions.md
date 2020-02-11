@@ -11,7 +11,7 @@ These websites have their own independent privacy policies, and we have no respo
 |NHK Nippon News|[https://www3.nhk.or.jp/news](https://www3.nhk.or.jp/news)|
 
 ## Contacting Us
-If you have questions regarding this terms, you may e-mail me at [pursue_better@126.com](mailto:pursue_better@126.com).
+If you have questions regarding this terms, you may e-mail me at [yamada.kenichi.nippon@gmail.com](mailto:yamada.kenichi.nippon@gmail.com).
 
 ## Changes to this terms
 
